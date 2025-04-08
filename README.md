@@ -1,4 +1,4 @@
-Proyecto de catedra
+PROYECTO DE CATEDRA
 
 Cindy Valeria González León   -- GL221827
 
